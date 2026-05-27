@@ -1,0 +1,1 @@
+Profesor, buenas noches, los códigos del ejercicio 1, como el video explicando como se realizó, cuyo durá menos de 5 min. Todo ello está adjuntado en el comentario donde subió el primer problema. Gracias
